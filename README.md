@@ -7,4 +7,3 @@
                        fan of many things... the loud house, dandys world inanimate insanity etc...
                
                  ( if you have a problem with me talk to me about it like a normal person 🙂. )
-  <img width="300" height="200" alt="ae98db6262bc7c62ddd9c530d8080718" src="https://github.com/user-attachments/assets/0a1f4107-fc6a-47eb-a41b-93e559bb489f" />
