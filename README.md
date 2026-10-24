@@ -19,6 +19,5 @@
 
 <img width="500" height="200" alt="Zpringy ‼️‼️III" src="https://github.com/user-attachments/assets/717a6677-4db6-4dd1-a6ab-9807d48d3a45" />
 
-<img width="500" height="200" alt="ZPRINGY III ‼️‼️‼️" src="https://github.com/user-attachments/assets/e9ef9a98-c68c-434c-9ffd-0570a0a721a8" />
 
       springy springy springy ... ｡◕‿◕｡ ~~~
