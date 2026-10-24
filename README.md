@@ -10,13 +10,14 @@
                  ( if you have a problem with me talk to me about it like a normal person 🙂. )
                         
               
+<img width="450" height="200" alt="Zpringy ‼️‼️III" src="https://github.com/user-attachments/assets/d15925ba-9748-41e5-9655-5184cfcc69ee" />
+  <img width="500" height="200" alt="100aa5ba73d1403c5548384020adf9c1" src="https://github.com/user-attachments/assets/d241d111-cf7c-41ca-b2e0-b1d3c92642e1" />   
+ 
+
+            
 
 
 
-  <img width="490" height="200" alt="100aa5ba73d1403c5548384020adf9c1" src="https://github.com/user-attachments/assets/d241d111-cf7c-41ca-b2e0-b1d3c92642e1" />               
-
-
-<img width="490" height="200" alt="Zpringy ‼️‼️III" src="https://github.com/user-attachments/assets/717a6677-4db6-4dd1-a6ab-9807d48d3a45" />
                                                                                                        
 
            
